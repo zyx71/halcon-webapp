@@ -10,4 +10,7 @@ Me siento satisfecho con los resultados obtenidos, ya que logré cumplir con cad
 
 **Josue Rodríguez Barrios**  
 AL03035827  
+**Arley David Ramirez Mejia**  
+AL03035827  
 Octavo semestre – Profesor Alan Ricardo Sánchez Maya
+
